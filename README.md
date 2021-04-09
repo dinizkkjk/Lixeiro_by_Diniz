@@ -7,4 +7,5 @@ Script Desenvolvido Por : dinizkkj#0001
 Script Feito Para Ajudar A Comunidade
 
 Preview Do Script : https://youtu.be/Lp9MxvptxHc
+
 Comunity : https://discord.gg/9PVPa2C5Us
